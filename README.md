@@ -1,1 +1,1 @@
-# laba3conflict
+# laba3conflictСтрока, добавленная на ПК
